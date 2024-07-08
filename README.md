@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @daniel-navas-ueno
 - 👀 I’m interested in Traveling and discovering new cities, Watching series and movies and Enjoying the beach 
-- 📫 How to reach me; [Email](mailto:daniel.sanchez@itti.digital)
+- 📫 How to reach me: Email: daniel.sanchez@itti.digital
 - ⚡ Fun fact: I'm a huge Formula 1 fan!
 
 <!---
